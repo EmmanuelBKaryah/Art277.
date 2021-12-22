@@ -1,3 +1,3 @@
-# Group-10-
-Art 277 Group #10 Project 
-click this link to view our work https://bestmanmoses.github.io/Group-10-/
+# Assignment--6
+Assignment#6
+click this link to preview my work  https://bestmanmoses.github.io/Assignment--6/
